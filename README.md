@@ -7,6 +7,10 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 
 ---
 
+[Cut, Drill, Urine and Dirt](src/methods/cut_drill_urine_dirt/cut_drill_urine_dirt_a.md)  
+
+---
+
 ### How to Download this Tutorial
 1. Click the green Code Button on this github page
 2. Choose Download ZIP
