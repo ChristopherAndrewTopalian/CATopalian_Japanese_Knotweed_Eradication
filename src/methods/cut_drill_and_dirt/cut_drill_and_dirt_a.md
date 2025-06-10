@@ -76,6 +76,8 @@ If this works, it could be a breakthrough **manual suppression method** that sma
 
 ---
 
+[Next](cut_drill_and_dirt_b.md)
+
 [HOME](../../../README.md)
 
 ---
