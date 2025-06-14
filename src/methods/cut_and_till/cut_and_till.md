@@ -16,9 +16,15 @@ Happy Gardening 🙂
 
 ---
 
-Removing All Japanese Knotweed means TILLING the land using a thin and long PICK AXE. You let the weight of the Pick Axe dive into the ground and then you LEVER it up. Do NOT drag the Pick Axe, because that would be exhausting and likely cause injury over time. Instead, we let the tool do most of the work as it was designed to do! BE CAREFUL FOR YOUR FEET. The metal Pick Axe is very dangerous.
-Make sure to WEAR A FACE SHIELD, so that you don't have any issues with dirt hitting your face and eyes. The face shield also helps keep the bugs away from your face very nicely. Make sure to stop when you are tired, because you would risk injury if you are too tired. Rest is important.
-When you are TILLING the land using the PICK AXE and LEVERING the soil upward, you can collect the loose roots easily as you see them. But do NOT try to force the roots up by pulling them hard. Pulling hard on the roots means the person will most likely break the roots and therefore not fully remove the issue and by pulling the roots with hard force the person would risk exhaustion and the person is likely to suffer injury from that kind of pulling motion. Instead of using a hard pulling force with our hands, we use the PICK AXE and keep LEVERING the soil by TILLING a new line next to the roots that were hard to pull out. After we TILL multiple rows, the roots that had been hard to pull out, will now come right out very easily and very completely. That's the goal. The goal is 100% root removal by TILLING the land using a Pick Axe.
+Removing All Japanese Knotweed means **TILLING** the land using a thin and long **PICK AXE**.  
+
+You let the weight of the Pick Axe dive into the ground and then you LEVER it up. Do NOT drag the Pick Axe, because that would be exhausting and likely cause injury over time. Instead, we let the tool do most of the work as it was designed to do! BE CAREFUL FOR YOUR FEET. The metal Pick Axe is very dangerous.  
+
+Make sure to WEAR A FACE SHIELD, so that you don't have any issues with dirt hitting your face and eyes. The face shield also helps keep the bugs away from your face very nicely.  
+
+Make sure to stop when you are tired, because you would risk injury if you are too tired. Rest is important.
+When you are TILLING the land using the PICK AXE and LEVERING the soil upward, you can collect the loose roots easily as you see them. But do NOT try to force the roots up by pulling them hard. Pulling hard on the roots means the person will most likely break the roots and therefore not fully remove the issue and by pulling the roots with hard force the person would risk exhaustion and the person is likely to suffer injury from that kind of pulling motion. Instead of using a hard pulling force with our hands, we use the PICK AXE and keep LEVERING the soil by TILLING a new line next to the roots that were hard to pull out. After we TILL multiple rows, the roots that had been hard to pull out, will now come right out very easily and very completely. That's the goal. The goal is 100% root removal by TILLING the land using a Pick Axe.  
+
 Remember, to remove all Japanese Knotweed we must TILL the ENTIRE land 100% and remove all roots. The Japanese Knotweed populates the soil with what looks like thousands of root systems.
 We set up many tarps so that we can continue to place the roots that we remove from the ground onto the tarps.
 Happy Gardening 🙂
