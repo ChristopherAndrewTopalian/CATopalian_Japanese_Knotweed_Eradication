@@ -33,7 +33,9 @@ We set up many tarps so that we can continue to place the roots that we remove f
 > ##### Note: Another reason the THIN and LONG Pick Axe is very good is because it has much less chance of cutting the roots than the THICK BLADE Pick Axe. Also, when you LEVER it backwards, since it about 1 foot long it pulls up most of the roots intact with each time you LEVER the Pick Axe up.
 
 # Root / Rock Rake
-The goal is 100% Root Remova! Use a Root/Rock Rake to fully remove all roots from the ground.
+The goal is 100% Root Remova!  
+
+After we TILL the land using the Pick Axe, we then use a Root/Rock Rake to fully remove all roots from the ground.
 
 Happy Gardening 🙂
 
