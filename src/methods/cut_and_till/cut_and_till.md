@@ -30,7 +30,7 @@ When you are TILLING the land using the PICK AXE and LEVERING the soil upward, y
 Remember, to remove all Japanese Knotweed we must TILL the ENTIRE land 100% and remove all roots. The Japanese Knotweed populates the soil with what looks like thousands of root systems.
 We set up many tarps so that we can continue to place the roots that we remove from the ground onto the tarps.  
 
-> ##### Note: Another reason the THIN and LONG Pick Axe is very good is because it has much less chance of cutting the roots than the THICK BLADE Pick Axe. Also, when you pull it back, since it about 1 foot long it pulls up most of the roots intact with each time you LEVER the Pick Axe up.
+> ##### Note: Another reason the THIN and LONG Pick Axe is very good is because it has much less chance of cutting the roots than the THICK BLADE Pick Axe. Also, when you LEVER it backwards, since it about 1 foot long it pulls up most of the roots intact with each time you LEVER the Pick Axe up.
 
 Happy Gardening 🙂
 
