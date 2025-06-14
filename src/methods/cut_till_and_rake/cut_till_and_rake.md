@@ -32,7 +32,7 @@ We set up many tarps so that we can continue to place the roots that we remove f
 
 > #### Note: Another reason the THIN and LONG Pick Axe is very good is because it has much less chance of cutting the roots than the THICK BLADE Pick Axe. Also, when you LEVER it backwards, since it about 1 foot long it pulls up most of the roots intact with each time you LEVER the Pick Axe up.
 
-> #### AFTER we have used the THIN Pick Axe, the THICK Pick Axe can be used to fully loosen up the soil everywhere.
+> #### AFTER we have used the THIN Pick Axe, the THICK Pick Axe can be used to fully loosen up the soil everywhere. Then we will rake the soil fully to remove ALL roots.
 
 # Root / Rock Rake
 The goal is 100% Root Removal!  
