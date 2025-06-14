@@ -4,7 +4,7 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 ---
 
 # WORKS
-[Cut and Till](src/methods/cut_and_till/cut_and_till.md)  
+[Cut, Till and Rake](src/methods/cut_till_and_rake/cut_till_and_rake.md)  
 
 ---
 
