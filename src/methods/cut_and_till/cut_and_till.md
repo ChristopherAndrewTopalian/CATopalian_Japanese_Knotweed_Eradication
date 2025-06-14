@@ -1,5 +1,6 @@
 // cut_and_till.md
 
+# **CUT AND TILL**
 # Removing Stalks: 
 YOU MUST WEAR A FACE SHIELD!  
 Remove every plant you see at the surface by using an aluminum snow shovel 🙂 with a circular swinging motion. Sounds funny but it has much inertia and you will hit yourself guaranteed when tired, so it's not as bad as a machete 🙂. You must make sure that not even one plant is still standing. 
