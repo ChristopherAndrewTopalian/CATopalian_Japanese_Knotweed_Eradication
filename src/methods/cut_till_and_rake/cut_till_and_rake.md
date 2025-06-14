@@ -2,7 +2,7 @@
 
 # **CUT, TILL and RAKE**
 # Removing Stalks: 
-YOU MUST WEAR A FACE SHIELD!  
+YOU MUST WEAR A FACE SHIELD!  WEAR GLOVES TOO.
 Remove every plant you see at the surface by using an aluminum snow shovel 🙂 with a circular swinging motion. Sounds funny but it has much inertia and you will hit yourself guaranteed when tired, so it's not as bad as a machete 🙂. You must make sure that not even one plant is still standing. 
 Never let them get energy from the sun.
 When you use a circular motion with the aluminum shovel you can easily clear an acre of Japanese Knotweed in less than 40 minutes.
@@ -37,7 +37,9 @@ We set up many tarps so that we can continue to place the roots that we remove f
 # Root / Rock Rake
 The goal is 100% Root Removal!  
 
-After we TILL the land using the Pick Axe, we then use a Root/Rock Rake to fully remove all roots from the ground.
+After we TILL the land using the Pick Axe, we then use a Root/Rock Rake to fully remove all roots from the ground.  
+
+Of course, while wearing heavy duty GLOVES, as we are working, we can collect many roots using our hands, but the primary way of collecting the roots is with the Root/Rock Rake to avoid injury.
 
 Happy Gardening 🙂
 
