@@ -39,7 +39,12 @@ The goal is 100% Root Removal!
 
 After we TILL the land using the Pick Axe, we then use a Root/Rock Rake to fully remove all roots from the ground.  
 
-Of course, while wearing heavy duty GLOVES, as we are working, we can collect many roots using our hands, but the primary way of collecting the roots is with the Root/Rock Rake to avoid injury.
+Of course, while wearing heavy duty GLOVES, as we are TILLING the land, we can collect many roots using our hands, but the primary way of collecting the roots is with the Root/Rock Rake to avoid injury. 
+
+> Always make sure that you do NOT pull the roots with force, because it would break the roots and it would likely cause the person injury.  
+
+> Instead of pulling the roots with force, we TILL the land with the Pick Axe in ONE or TWO more ROWS next to the area that was previously stuck in the ground.  
+All roots can easily be collected when we TILL the land 100%
 
 Happy Gardening 🙂
 
