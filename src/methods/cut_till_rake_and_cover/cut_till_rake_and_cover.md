@@ -59,6 +59,13 @@ Listen, you can till the land 100 times and you will still have knotweed in the 
 
 YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FROM THE LAND.
 
+---
+
+# Inexpensive Covers
+## Paperpulp Cover
+You can mix old paper in a bucket with a paint mixer and drill. This will make a paperpulp that you put over the entire land in about a 4" layer.
+The paper pulp will dry in the sun as you leave it on the ground.
+
 Happy Gardening 🙂
 
 ---
