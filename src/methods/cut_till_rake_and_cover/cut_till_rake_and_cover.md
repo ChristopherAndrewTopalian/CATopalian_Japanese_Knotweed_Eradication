@@ -73,7 +73,7 @@ Yep, it's like 10k$ in Tarps to cover 1 acre of land.
 
 The joys of gardening, lol.
 
-IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVDR THE LAND!
+IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVER THE LAND!
 
 Happy Gardening 🙂
 
