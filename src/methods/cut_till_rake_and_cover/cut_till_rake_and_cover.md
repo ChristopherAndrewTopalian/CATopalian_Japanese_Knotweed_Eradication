@@ -53,7 +53,7 @@ Now that you have "rid" the land of knotweed, you have to cover it for multiple 
 
 Yep, it costs money.
 
-Either you buy a bunch of dangerous chemicals and harm your family, or you pay for the material to cover the entire yard that has the infestation. Simple as that.
+You pay for the material to cover the entire yard that has the infestation. Simple as that.
 
 Listen, you can till the land 100 times and you will still have knotweed in the land if you don't cover it!
 
