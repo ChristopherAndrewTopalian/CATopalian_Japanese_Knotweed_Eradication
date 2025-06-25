@@ -1,6 +1,6 @@
-// cut_till_and_rake.md
+// cut_till_rake_and_cover.md
 
-# **CUT, TILL and RAKE**
+# **CUT, TILL, RAKE and COVER**
 # Removing Stalks: 
 YOU MUST WEAR A FACE SHIELD!  WEAR GLOVES TOO.
 Remove every plant you see at the surface by using an aluminum snow shovel 🙂 with a circular swinging motion. Sounds funny but it has much inertia and you will hit yourself guaranteed when tired, so it's not as bad as a machete 🙂. You must make sure that not even one plant is still standing. 
@@ -45,6 +45,19 @@ Of course, while wearing heavy duty GLOVES, as we are TILLING the land, we can c
 
 > Instead of pulling the roots with force, we TILL the land with the Pick Axe in ONE or TWO more ROWS next to the area that was previously stuck in the ground.  
 All roots can easily be collected when we TILL the land 100%
+
+>
+
+# COVER
+Now that you have "rid" the land of knotweed, you have to cover it for multiple seasons to actually rid the land of the knotweed :-)
+
+Yep, it costs money.
+
+Either you buy a bunch of dangerous chemicals and harm your family, or you pay for the material to cover the entire yard that has the infestation. Simple as that.
+
+Listen, you can till the land 100 times and you will still have knotweed in the land if you don't cover it!
+
+YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FROM THE LAND.
 
 Happy Gardening 🙂
 
