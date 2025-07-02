@@ -62,7 +62,7 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 ---
 
 # **Landscaping Cover**
-Landscaping Cover is inexpensive, where you would need 25 rolls × $53.99 = $1,349.75
+Landscaping Cover for 1 Acre of land is inexpensive, where you would need 25 rolls × $53.99 = $1,349.75
 
 The joys of gardening, lol.
 
