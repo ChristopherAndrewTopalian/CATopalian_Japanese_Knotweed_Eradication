@@ -69,7 +69,8 @@ Keep in mind that if you have an acre to cover, it would be too many tons of pap
 
 > So, listen, realistically: BUY landscaping covers or sell your house and move. It's that simple.
 
-Landscaping Cover is much cheaper, where you would need 25 rolls × $53.99 = $1,349.75
+Landscaping Cover is inexpensive, where you would need 25 rolls × $53.99 = $1,349.75
+
 The joys of gardening, lol.
 
 Tarps? No. Too expensive and they allow water to puddle up.
