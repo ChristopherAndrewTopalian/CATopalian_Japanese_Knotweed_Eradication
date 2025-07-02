@@ -67,14 +67,12 @@ You can mix old paper in a bucket with a paint mixer and drill. This will make a
 The paper pulp will dry in the sun as you leave it on the ground.
 Keep in mind that if you have an acre to cover, it would be too many tons of paper to pulpify. You would be mixing over 10,000 buckets of paper lol and 145 tons of paper lol.
 
-> So, listen, realistically: BUY the THICK tarps and buy the landscaping covers or sell your house and move. It's that simple.
+> So, listen, realistically: BUY landscaping covers or sell your house and move. It's that simple.
 
-Yep, it's like 10k$ in Tarps to cover 1 acre of land
-OR
 Landscaping Cover is much cheaper, where you would need 25 rolls × $53.99 = $1,349.75
-
-
 The joys of gardening, lol.
+
+Tarps? No. Too expensive and they allow water to puddle up.
 
 IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVER THE LAND!
 
