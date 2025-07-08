@@ -6,5 +6,4 @@
 ---
 
 # Very difficult
-## * Paper Pulp Cover
-## * [Mud Brick Cover](methods/paper_pulp_cover.md)  
+## * [Paperpulp Cover](methods/paper_pulp_cover.md)  
