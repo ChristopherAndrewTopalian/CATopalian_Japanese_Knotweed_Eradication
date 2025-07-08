@@ -16,9 +16,9 @@ Each brick is 2 ft x 2 ft = 4 sq ft
 
 So:
 
-43,560 ÷ 4 = 10,890 bricks
+43,560 ÷ 4 = 10,890 (2' x 2') mud bricks
 
-You’ll need about 10,890 mud bricks to cover a full acre.
+You’ll need about 10,890 (2' x 2') mud bricks to cover a full acre.
 
 ---
 
