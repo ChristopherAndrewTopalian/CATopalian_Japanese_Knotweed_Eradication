@@ -20,6 +20,8 @@ So:
 
 You’ll need about 10,890 (2' x 2') mud bricks to cover a full acre.
 
+That sounds like a lot, but listen: you make progress everyday and you stop another section of the yard from being taken over by knotweed! The mud is free and so is the water! You don't have to worry about it breaking!
+
 ---
 
 //----//
