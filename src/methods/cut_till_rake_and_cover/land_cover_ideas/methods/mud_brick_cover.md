@@ -10,6 +10,16 @@ That being said, they will likely hold structure even without the extra added ma
 The point of using the mud bricks is that it costs a lot of money to cover 1 acre of land with landscaping fabric.
 Thus, we can instead put mud bricks that are thin over the land, because we don't have to worry about the mud breaking or costing us money and it will cover the ENTIRE land very effectively.
 
+How many 2x2 mud bricks to cover 1 acre?
+1 acre = 43,560 square feet
+Each brick is 2 ft x 2 ft = 4 sq ft
+
+So:
+
+43,560 ÷ 4 = 10,890 bricks
+
+You’ll need about 10,890 mud bricks to cover a full acre.
+
 ---
 
 //----//
