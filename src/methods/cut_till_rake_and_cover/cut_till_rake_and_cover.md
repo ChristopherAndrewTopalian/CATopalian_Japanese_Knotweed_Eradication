@@ -72,6 +72,8 @@ IMPORTANT: If you do NOT cover the land, then the knotweed will come right back.
 
 Happy Gardening 🙂
 
+> [LAND COVERING IDEAS](land_cover_ideas/README.md)
+
 ---
 
 //----//
