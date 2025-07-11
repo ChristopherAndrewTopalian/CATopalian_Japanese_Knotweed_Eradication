@@ -62,11 +62,19 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 ---
 
 # **Landscaping Cover**
+* Amazon Reviews state that the Landscaping Fabric is not good and does NOT last!
+
 Landscaping Cover for 1 Acre of land is inexpensive, where you would need 25 rolls × $53.99 = $1,349.75
 
 The joys of gardening, lol.
 
-Tarps? No. Too expensive and they allow water to puddle up.
+---
+
+# Tarps
+Tarps? Very expensive and they allow water to puddle up. But they will last longer than landscaping fabric.
+
+# Mud Bricks
+This is the easiest answer if you have the correct form. A 1" heigh form would not take much material at all.
 
 IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVER THE LAND!
 
