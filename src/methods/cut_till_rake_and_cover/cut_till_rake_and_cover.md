@@ -61,10 +61,14 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 
 ---
 
-# **Landscaping Cover**
-* Amazon Reviews state that the Landscaping Fabric is not good and does NOT last!
+# COVERS
+
+## **Landscaping Fabric**
+* Amazon Reviews state that the Landscaping Fabric is NOT good and does NOT last!
 
 Landscaping Cover for 1 Acre of land is inexpensive, where you would need 25 rolls × $53.99 = $1,349.75
+
+So, while it is cheaper than Tarps, the landscaping fabric falls apart very quickly!
 
 The joys of gardening, lol.
 
