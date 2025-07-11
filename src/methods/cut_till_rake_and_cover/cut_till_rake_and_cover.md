@@ -82,6 +82,10 @@ Tarps? Very expensive and they allow water to puddle up. But they will last long
 # Mud Bricks
 This is the easiest answer if you have the correct form. A 1" high form would not take much material at all.
 
+For 1 acre, it would take about 11,000 Mud Bricks if they were 2' x 2'.
+
+While this is a lot of work, you will make real progress and reclaim parts of your yard at a time and not worry about price, since dirt and water is free. Remember it rains :-)
+
 > ---
 
 IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVER THE LAND!
