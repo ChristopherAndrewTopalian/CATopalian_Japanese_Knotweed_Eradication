@@ -51,10 +51,6 @@ All roots can easily be collected when we TILL the land 100%
 # COVER
 Now that you have "rid" the land of knotweed, you have to cover it for multiple seasons to actually rid the land of the knotweed :-)
 
-Yep, it costs money.
-
-You pay for the material to cover the entire yard that has the infestation. Simple as that.
-
 Listen, you can till the land 100 times and you will still have knotweed in the land if you don't cover it!
 
 YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FROM THE LAND.
