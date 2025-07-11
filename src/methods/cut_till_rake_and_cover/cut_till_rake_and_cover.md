@@ -73,8 +73,12 @@ The joys of gardening, lol.
 # Tarps
 Tarps? Very expensive and they allow water to puddle up. But they will last longer than landscaping fabric.
 
+---
+
 # Mud Bricks
-This is the easiest answer if you have the correct form. A 1" heigh form would not take much material at all.
+This is the easiest answer if you have the correct form. A 1" high form would not take much material at all.
+
+> ---
 
 IMPORTANT: If you do NOT cover the land, then the knotweed will come right back. YOU MUST COVER THE LAND!
 
