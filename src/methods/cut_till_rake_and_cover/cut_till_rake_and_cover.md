@@ -61,7 +61,7 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 
 ---
 
-# COVERS
+# COVER MATERIAL
 
 ## **Landscaping Fabric**
 * Amazon Reviews state that the Landscaping Fabric is NOT good and does NOT last!
