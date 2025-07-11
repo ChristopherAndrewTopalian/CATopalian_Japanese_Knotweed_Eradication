@@ -1,14 +1,14 @@
 # Land Covering Ideas
 
-# Very Easy
 ## * [Mud Brick Cover](methods/mud_brick_cover.md)  
 
 ---
 
-# Very difficult
 ## * [Paperpulp Cover](methods/paper_pulp_cover.md)  
 
 ---
+
+## * [Plastic Bottles Filled with Dirt Cover](methods/plastic_bottles_filled_with_dirt.md)  
 
 //----//
 
