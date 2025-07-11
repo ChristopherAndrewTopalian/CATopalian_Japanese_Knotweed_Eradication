@@ -89,6 +89,8 @@ The better we dry the mud bricks the longer they will last.
 
 Of course adding the right materials, such as straw, grass clipping etc, can increase durability.
 
+We can add the Japanese knotweed shoots broken in strands, which provides a very tough material for our Mud Bricks. When they dry they will be very easy to pick up, from the knotweed in them.
+
 We can use the SUN or Hydrogen/Oxygen burners, or even just a Fire pit to dry the mud bricks.
 
 ---
