@@ -87,7 +87,9 @@ While this is a lot of work, you will make real progress and reclaim parts of yo
 # KILN DRYING MUD BRICKS
 The better we dry the mud bricks the longer they will last.
 
-Of course addin the right materials, such as straw, grass clipping etc, can increase durability.
+Of course adding the right materials, such as straw, grass clipping etc, can increase durability.
+
+We can use the SUN or Hydrogen/Oxygen burners, or even just a Fire pit to dry the mud bricks.
 
 ---
 
