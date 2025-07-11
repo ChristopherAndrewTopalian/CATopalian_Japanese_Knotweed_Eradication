@@ -76,11 +76,23 @@ Tarps? Very expensive and they allow water to puddle up. But they will last long
 ---
 
 # Mud Bricks
-This is the easiest answer if you have the correct form. A 1" high form would not take much material at all.
+This is the easiest answer if you have the correct form. A 1" to 1 1/2" high form would not take much material at all.
 
 For 1 acre, it would take about 11,000 Mud Bricks if they were 2' x 2'.
 
 While this is a lot of work, you will make real progress and reclaim parts of your yard at a time and not worry about price, since dirt and water is free. Remember it rains :-)
+
+---
+
+# KILN DRYING MUD BRICKS
+The better we dry the mud bricks the longer they will last.
+
+Of course addin the right materials, such as straw, grass clipping etc, can increase durability.
+
+---
+
+# Compaction
+Experiment with compacting the mud bricks with a press.
 
 > ---
 
