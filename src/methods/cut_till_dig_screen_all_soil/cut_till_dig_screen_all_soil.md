@@ -1,7 +1,5 @@
 # Cut, Till, Dig, Screen All Soil
 
-Eureka! It works!
-
 We must get rid of EVERY single root! EVERY SINGLE ROOT MUST BE REMOVED FROM THE SOIL!
 
 That means we must get rid of the spider web sized roots too!
