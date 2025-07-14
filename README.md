@@ -4,6 +4,11 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 ---
 
 # WORKS
+[Cut, Till, Dig, Screen All Soil](src/methods/cut_till_dig_screen_all_soil/cut_till_dig_screen_all_soil.md)  
+
+---
+
+# WORKS only with HEAVY DUTY COVERS
 [Cut, Till, Rake and Cover](src/methods/cut_till_rake_and_cover/cut_till_rake_and_cover.md)  
 
 ---
