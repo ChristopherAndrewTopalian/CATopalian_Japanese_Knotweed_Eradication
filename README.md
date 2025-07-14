@@ -4,12 +4,12 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 ---
 
 # WORKS
-[Cut, Till, Dig, Screen, Sterilize All Soil](src/methods/cut_till_dig_screen_sterilize_all_soil/cut_till_dig_screen_sterilize_all_soil.md)  
+[Cut, Till, Dig, Screen All Soil](src/methods/cut_till_dig_screen_all_soil/cut_till_dig_screen_all_soil.md)  
 
 ---
 
-# WORKS some
-[Cut, Till, Dig, Screen All Soil](src/methods/cut_till_dig_screen_all_soil/cut_till_dig_screen_all_soil.md)  
+# WORKS but requires much power
+[Cut, Till, Dig, Screen, Sterilize All Soil](src/methods/cut_till_dig_screen_sterilize_all_soil/cut_till_dig_screen_sterilize_all_soil.md)  
 
 ---
 
