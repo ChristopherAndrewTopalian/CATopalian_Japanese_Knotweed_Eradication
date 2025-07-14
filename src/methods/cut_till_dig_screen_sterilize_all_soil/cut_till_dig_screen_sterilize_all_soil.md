@@ -6,6 +6,8 @@ We must STERILIZE all soil to eradicate the knotweed 100%.
 
 We can use HEAT to sterilize the soil by killing all roots in the dirt.
 
+We can use high grade steamers to HEAT the soil.
+
 Happy Gardening :-)
 
 ---
