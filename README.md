@@ -4,17 +4,17 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 ---
 
 # WORKS
+[Cut, Till, Rake and Cover](src/methods/cut_till_rake_and_cover/cut_till_rake_and_cover.md)  
+
+---
+
+# Experimental
 [Cut, Till, Dig, Screen All Soil](src/methods/cut_till_dig_screen_all_soil/cut_till_dig_screen_all_soil.md)  
 
 ---
 
-# WORKS but requires much power
+# Experimental
 [Cut, Till, Dig, Screen, Sterilize All Soil](src/methods/cut_till_dig_screen_sterilize_all_soil/cut_till_dig_screen_sterilize_all_soil.md)  
-
----
-
-# WORKS only with HEAVY DUTY COVERS
-[Cut, Till, Rake and Cover](src/methods/cut_till_rake_and_cover/cut_till_rake_and_cover.md)  
 
 ---
 
@@ -23,6 +23,7 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 
 ---
 
+# Experimental 
 [Cut, Drill, Urine and Dirt](src/methods/cut_drill_urine_dirt/cut_drill_urine_dirt_a.md)  
 
 ---
