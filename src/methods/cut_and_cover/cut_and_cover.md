@@ -18,6 +18,8 @@ Just clear the line and then cover it.
 
 ---
 
+MAKE SURE TO OVERLAP the TRASH BAGS!
+
 //----//
 
 // Dedicated to God the Father  
