@@ -3,6 +3,11 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 
 ---
 
+# WORKS - EASIEST
+[Cut and Cover](src/methods/cut_and_cover/cut_and_cover.md)  
+
+---
+
 # WORKS
 [Cut, Till, Rake and Cover](src/methods/cut_till_rake_and_cover/cut_till_rake_and_cover.md)  
 
@@ -45,6 +50,4 @@ Happy Scripting :-)
 // https://github.com/ChristopherTopalian  
 // https://github.com/ChristopherAndrewTopalian  
 // https://sites.google.com/view/CollegeOfScripting
-
-
 
