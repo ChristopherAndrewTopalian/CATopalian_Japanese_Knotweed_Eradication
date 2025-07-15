@@ -1,7 +1,7 @@
 // mud_brick_cover.md
 
 # Mud Brick Cover
-We can make very thin mud bricks as land covering.
+We can make mud bricks as land covering.
 
 All that is needed to make them is dirt, water and any kind of material such as grass clippings, straw, and really anything from the yard debris, to give structure.
 
@@ -23,6 +23,29 @@ You’ll need about 10,890 (2' x 2') mud bricks to cover a full acre.
 That sounds like a lot, but listen: you make progress everyday and you stop another section of the yard from being taken over by knotweed! The mud is free and so is the water! You don't have to worry about it breaking!
 
 ---
+
+# Mud Bricks
+This is the easiest answer if you have the correct form. A 2" to 1 1/4" high form would not take much material at all. 1" is too low, for it gets covered quickly by heavy rain pushing dirt around.
+
+For 1 acre, it would take about 11,000 Mud Bricks if they were 2' x 2'.
+
+While this is a lot of work, you will make real progress and reclaim parts of your yard at a time and not worry about price, since dirt and water is free. Remember it rains :-)
+
+---
+
+# KILN DRYING MUD BRICKS
+The better we dry the mud bricks the longer they will last.
+
+Of course adding the right materials, such as straw, grass clipping etc, can increase durability.
+
+We can add the Japanese knotweed shoots broken in strands, which provides a very tough material for our Mud Bricks. When they dry they will be very easy to pick up, from the knotweed in them.
+
+We can use the SUN or Hydrogen/Oxygen burners, or even just a Fire pit to dry the mud bricks.
+
+---
+
+# Compaction
+Experiment with compacting the mud bricks with a press.
 
 //----//
 
