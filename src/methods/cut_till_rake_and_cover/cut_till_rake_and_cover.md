@@ -60,8 +60,9 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 # COVER MATERIAL
 
 # Easiest Most Available Choice
-* Contractor Bags
-* Trash Bags
+## Contractor Bags
+## Trash Bags
+We can weigh the plastic bags down using dirt, which also protects the plastic from UV damage.
 
 ---
 
