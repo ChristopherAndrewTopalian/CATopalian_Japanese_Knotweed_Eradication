@@ -65,7 +65,7 @@ YOU MUST COVER THE LAND AFTER YOU TILL IT TO ERADICATE THE JAPANESE KNOTWEED FRO
 ## Black Plastic Sheething
 We can weigh the plastic bags down using dirt, which also protects the plastic from UV damage.
 
-One or two times we have to lift up each trash bag and remove whatever is underneath remaining.
+One or two times in the season we have to lift up each trash bag and remove whatever is underneath remaining.
 
 No worries!
 It won't be much to remove at all!
