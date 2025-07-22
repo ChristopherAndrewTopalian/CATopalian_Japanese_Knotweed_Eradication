@@ -32,6 +32,8 @@ We remove the trash bags for winter to preserve them for next season.
 
 ---
 
+# Seams - Packing Tape or Duct Tape
+
 Instead of using dirt to cover the trash bags down, we can instead use packing tape and tape the seams. 
 
 Packing tape or Duct Tape will keep the trashbags together making them much easier to manage.
