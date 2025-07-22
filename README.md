@@ -21,7 +21,7 @@ The first time you apply the row outside the knotweed will start pushing up tryi
 
 You will pull the row of trash bags back and remove the knotweed spears.
 
-You will then bring the trash bag row bag down easily and keep it weighted so it won't blow away.
+You will then bring the trash bag row back down easily and keep it weighted so it won't blow away.
 
 ---
 
