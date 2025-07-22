@@ -15,7 +15,9 @@ Remember, the more tape we use on the seam the easier everything will be outside
 
 To make a nice row of trash bags, it's easier to tape it inside where there is no dirt.
 
-We tape about 5 trash bags together at the edges with some overlap with a very long piece of tape for good strength. This row becomes very manageable outside.
+We tape about 5 trash bags together at the edges with some overlap with a very long piece of tape for each steam for a real strong seam.
+
+This row of 5 trash bags taped together at the seams becomes very manageable outside.
 
 The first time you apply the row outside the knotweed will start pushing up trying to pierce it like a spear.
 
