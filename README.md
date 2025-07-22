@@ -6,6 +6,8 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 # WORKS - EASIEST
 [Cut and Cover](src/methods/cut_and_cover/cut_and_cover.md)  
 
+Knotweed is easy to defeat. Trash bags and Contractor Bags are cheap. We can tape the seams with Packing Tape or Duct Tape. We just keep the land covered for 5 to 10 years and the knotweed will be defeated. It's very inexpensive even for an acre.
+
 ---
 
 # WORKS
