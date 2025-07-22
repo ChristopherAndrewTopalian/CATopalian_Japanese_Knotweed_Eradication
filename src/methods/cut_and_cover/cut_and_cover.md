@@ -24,11 +24,19 @@ MAKE SURE TO OVERLAP the TRASH BAGS!
 
 One or two times in the season we may have to lift each trash bag up and remove the very small amount of very thin material underneath.  
 
-But, in a couple of seasons, that ground will be cleared of Knotweed from keeping the cover over it!
+But, in 5 or 10 of seasons, that ground will be cleared of Knotweed from keeping the cover over it!
 
 ---
 
 We remove the trash bags for winter to preserve them for next season.
+
+---
+
+Instead of using dirt to cover the trash bags down, we can instead use packing tape and tape the seams. 
+
+Packing tape or Duct Tape will keep the trashbags together making them much easier to manage.
+
+---
 
 //----//
 
