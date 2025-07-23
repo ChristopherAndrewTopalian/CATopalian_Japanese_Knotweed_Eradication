@@ -1,5 +1,7 @@
 # Cut and Cover
 
+![plastic_trash_bags_covered_by_dirt_or_weeds](textures/plastic_trash_bags_covered_by_dirt_or_weeds.png)  
+
 We work on horizontal lines.
 
 We clear the bottom closest to our house on a horizontal line.
