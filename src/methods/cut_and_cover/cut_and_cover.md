@@ -44,6 +44,8 @@ Packing tape or Duct Tape will keep the trashbags together making them much easi
 
 ![150f](textures/temperature_of_black_trash_bag.png)  
 
+![150f](textures/temperature_of_soil_under_black_trash_bags.png)  
+
 //----//
 
 // Dedicated to God the Father  
