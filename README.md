@@ -17,7 +17,7 @@ Let us use logic to eradicate the Japanese Knotweed from this planet.
 Knotweed is easy to defeat. Trash bags and Contractor Bags are cheap. We can tape the seams with Packing Tape or Duct Tape. We just keep the land covered for 5 to 10 years and the knotweed will be defeated. It's very inexpensive even for an acre.
 When taping the seams together the more tape you use the better, because it will make a much easier time when adjusting your row.
 
-We tape them together in rows to make it easy to remove any spears that come up to try to pierce it.
+We cam tape them together in rows to make it easy to remove any spears that come up to try to pierce it.
 
 Remember, the more tape we use on the seam the easier everything will be outside. 
 
