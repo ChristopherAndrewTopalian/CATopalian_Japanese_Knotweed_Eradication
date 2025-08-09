@@ -1,14 +1,14 @@
-# cut_and_cover_easy
+# Cut and Cover EASY
 
 # EASY METHOD THAT WORKS!
-Trash bags are very cheap.
+**Trash Bags** are very cheap.
 
 The reason trash bags keep working without being punctured, is because we only hold them down using light grass and weed clippings.  
 
-After we cover the knotweed soil the knotweed sends up a spear while it has lots of energy. But the Trash Bag Method being covered only lightly ALLOWS the trash bag to rise instead of being punctured!  
+After we cover the knotweed soil the knotweed sends up a spear while it has lots of energy. But the **Trash Bag Method** being covered only lightly ALLOWS the trash bag to rise instead of being punctured!  
 
 # Easy Directions
-1. We Remove the sharp rocks from the section of land that we are about to cover, that might be sharp and cause plastic bags to rip. Alternatively we can use a DIRT Compactor to make the land even before we apply the plastic down.  
+1. We Remove the sharp rocks from the section of land that we are about to cover, that might be sharp and cause plastic bags to rip. We can use a Rock rake or remove them by hand.  Alternatively we can use a DIRT Compactor to make the land even before we apply the plastic down.  
 2. We Place the Trash Bag on to the ground.  
 3. After we put down this first trash bag we cover the trash bag lightly with grass and weed clippings. This keeps the trash bag from taking off in the wind, but we keep it light enough to be able to rise when the knotweed tries to puncture it!  
 The grass and weed clippings also minimizes any UV damage to the plastic from the Sun.  
