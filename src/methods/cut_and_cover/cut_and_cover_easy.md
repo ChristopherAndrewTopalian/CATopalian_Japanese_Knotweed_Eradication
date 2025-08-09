@@ -1,5 +1,7 @@
 # Cut and Cover EASY
 
+![plastic_trash_bags_covered_by_dirt_or_weeds](textures/trash_bags_held_down_with_grass_weed_clippings.png)  
+
 # EASY METHOD THAT WORKS!
 **Trash Bags** are very cheap.
 
@@ -27,12 +29,6 @@ In addition the more you disturb the plant underground the more it will send out
 * We Don't bother peeling up each **Trash Bag** to avoid walking on them as we walk to monitor a section, because we would end up ruining the uniformity of the covering!
 # What to do instead
 * JUST WALK ON THE **TRASH BAGS**. It will keep the uniformity of the covering. If we happen to walk on uneven ground or a sharp rock and a puncture happens, we can easily fix it. We can heal the puncture using another **Trash Bag** and packing tape. In addition, next season we will apply another **Trash Bag** on top of the one that is there now, so it's okay if a rip here or there occurs on the plastic.  
-
---- 
-
-![plastic_trash_bags_covered_by_dirt_or_weeds](textures/plastic_trash_bags_covered_by_dirt_or_weeds.png)  
-
----
 
 ---
 
