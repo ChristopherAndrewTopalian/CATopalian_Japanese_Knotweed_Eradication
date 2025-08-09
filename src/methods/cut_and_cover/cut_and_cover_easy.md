@@ -5,12 +5,12 @@
 
 The reason trash bags keep working without being punctured, is because we only hold them down using light grass and weed clippings.  
 
-After we cover the knotweed soil the knotweed sends up a spear while it has lots of energy. But the **Trash Bag Method** being covered only lightly ALLOWS the trash bag to rise instead of being punctured!  
+After we cover the knotweed soil the knotweed sends up a spear while it has lots of energy. But the **Trash Bag Method** being covered only lightly ALLOWS the **Trash Bag** to rise instead of being punctured!  
 
 # Easy Directions
 1. We Remove the sharp rocks from the section of land that we are about to cover, that might be sharp and cause plastic bags to rip. We can use a Rock rake or remove them by hand.  Alternatively we can use a DIRT Compactor to make the land even before we apply the plastic down.  
 2. We Place the Trash Bag on to the ground.  
-3. After we put down this first **Trash Bag** we cover the **Trash Bag** lightly with grass and weed clippings. This keeps the trash bag from taking off in the wind, but we keep it light enough to be able to rise when the knotweed tries to puncture it!  
+3. After we put down this first **Trash Bag** we cover the **Trash Bag** lightly with grass and weed clippings. This keeps the **Trash Bag** from taking off in the wind, but we keep it light enough to be able to rise when the knotweed tries to puncture it!  
 The grass and weed clippings also minimizes any UV damage to the plastic from the Sun.  
 4. We place another **Trash Bag** down overlapping the one we put down earlier by 4". We do this in a row so that we can DEFEND our land against the knotweed advancing!  
 5. We keep placing **Trash Bags** down and overlapping them and putting grass and weed clippings on top them.  
