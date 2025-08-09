@@ -45,7 +45,13 @@ Compare this to landscaping material. Landscaping material or anything that is v
 Thus, instead we design our covering to be FLEXIBLE and RISE with the knotweed instead of trying to force it down.  
 The knotweed exhausts itself because it can never puncture the flexible **Trash Bag** that rises!  
 
+---
+
+### [Cybernetic Principles in the Cut and Cover Knotweed Suppression System](cybernetic_principles_in_the_cut_and_cover_knotweed_suppression_system.md)  
+
 Happy Gardening :-)
+
+---
 
 
 //----//
