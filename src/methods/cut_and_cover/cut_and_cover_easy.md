@@ -24,9 +24,9 @@ So, we just walk to the section lightly, and removing the knotweed by hand, not 
 In addition the more you disturb the plant underground the more it will send out shoots. It is better to just cover it with the least amount of disturbing it.  
 
 # What not to do
-* Don't bother peeling up each Trash Bag to avoid walking on them as you walk to monitor a section, because you would end up ruining the uniformity of the covering!
+* We Don't bother peeling up each Trash Bag to avoid walking on them as we walk to monitor a section, because we would end up ruining the uniformity of the covering!
 # What to do instead
-* JUST WALK ON THE TRASH BAGS. It will keep the uniformity of the covering. If you happen to walk on uneven ground or a sharp rock and a puncture happens, don't worry.  We can heal the puncture using another Trash Bag and packing tape. In addition, next season we will apply another Trash Bag on top of the one that is there now, so it's okay if a rip here or there occurs on the plastic.  
+* JUST WALK ON THE TRASH BAGS. It will keep the uniformity of the covering. If we happen to walk on uneven ground or a sharp rock and a puncture happens, don't worry. We can heal the puncture using another Trash Bag and packing tape. In addition, next season we will apply another Trash Bag on top of the one that is there now, so it's okay if a rip here or there occurs on the plastic.  
 
 ---
 
