@@ -32,7 +32,7 @@ In addition the more you disturb the plant underground the more it will send out
 
 ![plastic_trash_bags_covered_by_dirt_or_weeds](textures/plastic_trash_bags_covered_by_dirt_or_weeds.png)  
 
-# < 
+---
 
 ---
 
