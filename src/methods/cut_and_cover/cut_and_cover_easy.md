@@ -47,7 +47,9 @@ This will cover a very big amount of land and will help save the yard very quick
 
 Compare this to landscaping material. Landscaping material or anything that is very tightly held down will likely be punctured by knotweed.
 Thus, instead we design our covering to be FLEXIBLE and RISE with the knotweed instead of trying to force it down.  
-The knotweed exhausts itself because it can never puncture the flexible **Trash Bag** that rises! 
+The knotweed exhausts itself because it can never puncture the flexible **Trash Bag** that rises!  
+
+Happy Gardening :-)
 
 
 //----//
