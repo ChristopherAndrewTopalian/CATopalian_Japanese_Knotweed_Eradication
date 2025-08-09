@@ -36,6 +36,15 @@ In addition the more you disturb the plant underground the more it will send out
 
 ---
 
+# Cost Effectiveness and Winter Preparation
+* We don't have to remove the Trash Bags from the ground for winter. Since Trash Bags are so cheap we can leave the Trash Bags in place so that when the Spring thaw happens the knotweed won't have even a moment of sun light!  
+In addition, the very first day the snow stops we can start putting more Trash Bags down on top of the ones from the season before. After a few seasons we will elminate the knotweed from most sections, but for very deep knotweed, we can expect 5 to 10 years of covering!
+
+This is why it's so important to use inexpensive Trash Bags. For 27 dollars you can get 160 Trash Bags. 
+This will cover a very big amount of land and will help save the yard very quickly from knotweed advancing.  
+
+---
+
 Compare this to landscaping material. Landscaping material or anything that is very tightly held down will likely be punctured by knotweed.
 Thus, instead we design our covering to be FLEXIBLE and RISE with the knotweed instead of trying to force it down.  The knotweed exhausts itself because it can never puncture the flexible Trash Bag that rises! 
 
