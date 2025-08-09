@@ -28,12 +28,16 @@ In addition the more you disturb the plant underground the more it will send out
 # What to do instead
 * JUST WALK ON THE TRASH BAGS. It will keep the uniformity of the covering. If we happen to walk on uneven ground or a sharp rock and a puncture happens, don't worry. We can heal the puncture using another Trash Bag and packing tape. In addition, next season we will apply another Trash Bag on top of the one that is there now, so it's okay if a rip here or there occurs on the plastic.  
 
+--- 
+
+![plastic_trash_bags_covered_by_dirt_or_weeds](textures/plastic_trash_bags_covered_by_dirt_or_weeds.png)  
+
+# < 
+
 ---
 
 Compare this to landscaping material. Landscaping material or anything that is very tightly held down will likely be punctured by knotweed.
-Thus, instead we design our covering to be FLEXIBLE and RISE with the knotweed instead of trying to force it down.  The knotweed exhausts itself because it can never puncture the flexible Trash Bag that rises!  
-
-![plastic_trash_bags_covered_by_dirt_or_weeds](textures/plastic_trash_bags_covered_by_dirt_or_weeds.png)  
+Thus, instead we design our covering to be FLEXIBLE and RISE with the knotweed instead of trying to force it down.  The knotweed exhausts itself because it can never puncture the flexible Trash Bag that rises! 
 
 
 //----//
